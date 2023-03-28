@@ -1,1 +1,1 @@
-# Thushany1
+# Thushany
